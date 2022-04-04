@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @osgtzc92
 - 👀 I’m interested in ... marketing, branding, tech, and innovation.
-- 🌱 I’m currently learning ... learning to live in the now.
+- 🌱 I’m currently learning ... Marketing trends and learning to live in the now.
 - 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... https://www.linkedin.com/in/oscargutierrezcarbo/?locale=en_US
 
