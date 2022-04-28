@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @osgtzc92
 - 👀 I’m interested in ... marketing, branding, tech, and innovation.
-- 🌱 I’m currently learning ... Strategic perspectives of Digital Marketing 
+- 🌱 I’m currently learning ... New strategic perspectives of Digital Marketing 
 - 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... https://www.linkedin.com/in/oscargutierrezcarbo/?locale=en_US
 
